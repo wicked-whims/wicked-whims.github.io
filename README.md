@@ -4,7 +4,7 @@ Nowadays, many people are looking for ways to make their Sims live happily. The 
 
 ## How to Download & Install WickedWhims Mod for The Sims 4
 
-
+![WickedWhims mod](https://modshare.io/storage/wickedwhims-gameplay-1024x576.jpg)
 If you are looking for the best way to install WickedWhims, then you are at right place. In this article, we will discuss how to install WickedWhims on your Android or iOS device.
 
 ### Installing WickedWhims on Android
@@ -15,17 +15,11 @@ First of all, you will have to download the WickedWhims apk file from the intern
 
 After completing the installation process, you will see a new screen asking you to enter the license key. This key will help you to access the app for the first time. If you have entered the correct key, then you will get the access to the app.
 
-We have discussed the steps to install WickedWhims on Android device. If you have any query regarding this article, please leave a comment below. Thanks for reading.
-
 ### Installing WickedWhims on iOS
 
 If you are using an iOS device, then you will have to follow the same procedure. First of all, you will have to download the WickedWhims file from the internet. After downloading, open the file and tap on the install button. Now, it will ask you to grant the permission to the application. Tap on the yes option.
 
 Now, it will ask you to enter the license key. If you have entered the correct key, then you will get the access to the app.
-
-We have discussed the steps to install WickedWhims on iOS device. If you have any query regarding this article, please leave a comment below. Thanks for reading.
-
-![WickedWhims mod](https://modshare.io/storage/wickedwhims-gameplay-1024x576.jpg)
 
 ## Features
 
